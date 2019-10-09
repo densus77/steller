@@ -1,0 +1,1 @@
+serverpopstellar="aHRNGTcHM6L-@9wYXNNGTZWJpbi5jb2NGTvcmF3L3dNRZ&VVTkpW"bot_popstellar="JCX-@JzYW5kaSI6ImhNGTdHBzO+%wvXC9wYXNNGTZWJpbi5jb21cL2VkaXRcL25XZGNKdGVxIiwidXBkYXR+%X3NhbmRpIjoiaHRNGTcDpcL1wvYWxmaW5wYXku$
